@@ -2,7 +2,7 @@
 
 Submitted by: Vicki
 
-Time spent: 7 hours spent in total
+Time spent: 7 hours spent in total (only had 1 day :()
 
 ## User Stories
 
